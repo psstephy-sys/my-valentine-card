@@ -8,4 +8,4 @@ Even from far away, you are my heart.
 Will you be my Valentine forever? 💍💕
 
 Love,
-[Yours Mallu] 😘
+Yours Mallu 😘
